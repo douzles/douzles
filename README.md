@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @douzles
+- 👀 I’m interested in Technology
+- 🌱 I’m currently learning Pawn
+- 📫 How to reach me farelaranta46@gmail.com
+- 😄 Pronouns: he/him
